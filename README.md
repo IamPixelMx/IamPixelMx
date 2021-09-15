@@ -6,7 +6,7 @@
 - Living in CDMX, México 🇲🇽
 - JS lover 💛
 - Bachata and salsa dancer 💃🏻
-- I like anime 🍙, movies 🎥, editorial makeup 🧑🏻‍🎤, ecotourism 🌱 and learn/share new things ✨
+- I like anime 🍙, movies 🎥, editorial makeup 🧑🏻‍🎤, writting ✒️, ecotourism 🌱, swimming 🏊🏻‍♀️ and learn/share new things ✨
 
 
 ## Get in touch! 
